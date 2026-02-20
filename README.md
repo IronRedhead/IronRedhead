@@ -1,6 +1,6 @@
 hello!! it's sally here, im going to tell you about myself a bit(sorry for any typos or wrong words, english is not my first language :) ) 
 so,i go by sall,sally,ari,aris,or arisa(i'd rather called sal) 
-i'm straight(heterosexual) and feel fre to interact!!
+i'm straight(heterosexual) and feel free to interact!!
 i am mostly active kn tiktok and ponytown!
 and to know more,i'm muslim, and a minor!
 And more,,hasbin hotel fans,halluva boss fans,anlst fans,and yaoi or yuri shippers(even canonically straight chars),toji or gojo fans dni pls.because the fandom or the show/game is bothering me,sorry.
