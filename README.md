@@ -6,7 +6,7 @@
 
 hello!! it's sally here, im going to tell you about myself a bit(sorry for any typos or wrong words, english is not my first language :) ) 
 so,i go by sall,sally,ari,aris,or arisa(i'd rather called sal) 
-i'm straight(heterosexual) and feel free to interact!!
+i'm straight(heterosexual),an digital artist, and feel free to interact!!
 ![0a6ff34546dddb9e47a06a101728cd91](https://github.com/user-attachments/assets/3e72d474-f1f5-4c31-bcb7-39e4fa1d8c80)
 
 i am mostly active kn tiktok and ponytown!
@@ -15,7 +15,7 @@ And more,,hasbin hotel fans,halluva boss fans,alnst fans,and yaoi or yuri shippe
 and jjk fans,aot fans,fnaf fans,csm fans,geto fans,marvel fans,especially bruce banner or tony stark fans or even deadpool fans,and any other fandoms int freely!!!(if i found anything strange or weird about you,i'll slightly dni,like if you were trans,im not hating but im not used to them so try to dni,for your good :(( )
 ![3088e8879068dcbf648780771ae9f7f7](https://github.com/user-attachments/assets/fb3e1a76-1d86-4042-9286-4fe385ea4bc4)
 
-so i kin (in a .. personality .. way)kobeni and hange zoe from chainsaw man/attack on titan!!,also f/o or kin utahime iori and pieck finger from jujutsu kaisen/attack on titan!!
+so i kin (in a .. personality .. way)kobeni and hange zoe from chainsaw man/attack on titan!!,also f/o or kin utahime iori and pieck finger from jujutsu kaisen/attack on titan!!(and i love reiner braun and tony stark sm!!)
 ![9263b436782e2f931a84a587013ae9ae](https://github.com/user-attachments/assets/1f7d589c-e4f3-4ee6-8a38-99ca96c2b613)
 
 andddd for more info,over 16 dni, just because i'm too young to be here😭😭
