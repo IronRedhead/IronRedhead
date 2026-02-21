@@ -11,7 +11,7 @@ i'm straight(heterosexual),an digital artist, and feel free to interact!!
 
 i am mostly active kn tiktok and ponytown!
 and to know more,i'm muslim, and a minor!
-And more,,hasbin hotel fans,halluva boss fans,alnst fans,and yaoi or yuri shippers(even canonically straight chars),toji or gojo fans dni pls.because the fandom or the show/game is bothering me,sorry.
+And more,,hazbin hotel fans,halluva boss fans,alnst fans,and yaoi or yuri shippers(even canonically straight chars),toji or gojo fans dni pls.because the fandom or the show/game is bothering me,sorry.
 and jjk fans,aot fans,fnaf fans,csm fans,geto fans,marvel fans,especially bruce banner or tony stark fans or even deadpool fans,and any other fandoms int freely!!!(if i found anything strange or weird about you,i'll slightly dni,like if you were trans,im not hating but im not used to them so try to dni,for your good :(( )
 ![3088e8879068dcbf648780771ae9f7f7](https://github.com/user-attachments/assets/fb3e1a76-1d86-4042-9286-4fe385ea4bc4)
 
